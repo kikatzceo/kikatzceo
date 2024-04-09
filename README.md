@@ -1,2 +1,4 @@
+![donotuse](https://cdn.discordapp.com/attachments/1162965741780344946/1227127567430193162/Khong_Co_Tieu_e8_20240409122634.png?ex=6627469b&is=6614d19b&hm=266edeee3f4fe9be4b989e43ed8fb00ad6b4aa99145d947670cbe77edfdf9cfe&)
 ![madebyme:3](https://cdn.discordapp.com/attachments/1162965741780344946/1226564908166938684/ezgif.com-added-text.gif?ex=66253a96&is=6612c596&hm=460fa20bcc30e1843abdc522c2ced32e938cc47273b91497fa2537eb121a00f6&)
 wip
+![donotuse](https://cdn.discordapp.com/attachments/1162965741780344946/1227127567740440617/Khong_Co_Tieu_e8_20240409122443.png?ex=6627469b&is=6614d19b&hm=187f912678cbd3fcd494521e4eeab82098184f8f8779b6641389b496a5d41db9&)
